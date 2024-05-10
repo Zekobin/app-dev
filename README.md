@@ -67,4 +67,4 @@ May 20XX - 20XX
 - Computer and Technology
 - Designing
 - Sleeping, Walking, Eating
-- Anime, Manga, Manhwa
+- Anime, Manga, Manhwa 
