@@ -52,7 +52,7 @@ May 20XX - 20XX
 
 ## Certifications
 
-- New Youth Convention (NYC)
+- National Youth Convention (NYC)
 
 ---
 
