@@ -60,3 +60,11 @@ May 20XX - 20XX
 
 - Tagalog/Filipino (Native)
 - English (Intermediate)
+
+---
+
+## Interests
+- Computer and Technology
+- Designing
+- Sleeping, Walking, Eating
+- Anime, Manga, Manhwa
